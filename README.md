@@ -1,3 +1,5 @@
+![Preview Image](freecompress-freecompress-1621117744_Escape-from-Tarkov-Hacks-FREE-CHEATS-EFT-ESP-AIMBOT.jpg)
+
 BEST SOFT FOR EscapefromTarkov
 
 GUIDE HOW TO USE OUR SOFTWARE
